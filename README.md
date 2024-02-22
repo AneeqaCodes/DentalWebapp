@@ -1,0 +1,1 @@
+It is a cutting-edge web application designed to revolutionize the way you manage your dental health. Whether you're a patient seeking personalized oral care or a dental professional looking to streamline practice management, offers a comprehensive suite of features to meet your needs.
